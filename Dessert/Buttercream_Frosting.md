@@ -9,7 +9,7 @@
     - 1 tsp vanilla
     - 2-3 TBS milk
 
-
+---
 
 # Instructions
 - mix all ingredients but the powdered sugar

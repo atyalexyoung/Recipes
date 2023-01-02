@@ -32,7 +32,7 @@ Yields 1-1/2 to 2 dozen
 2. Combine dry ingredients, add to the egg mixture and mix well
 3. Add zucchini and mix well
 4. Fill greased or paper-lined muffin cups 2/3 full
-5. Bake at 350&degF for 20-25 minutes, or until cupcakes test done
+5. Bake at 350&deg;F for 20-25 minutes, or until cupcakes test done
 6. Cool for 10 minutes before removing to a wire rack
 7. FROSTING
     - mix all ingredients but the powdered sugar

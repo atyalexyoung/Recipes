@@ -21,7 +21,7 @@
 
 ## Instructions
 
-1. Preheat oven to 350 degrees(F)
+1. Preheat oven to 350&deg;F
 2. Line 2 cookie sheets with parchment paper
 3. Beat butter, shortening and sugars in a large bowl and until creamy (about 3 min)
 4. Add eggs one at a time, beating after each addition
