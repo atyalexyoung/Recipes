@@ -14,7 +14,7 @@
 
 ---
 
-## Ingredients
+## Ingredients (for 1 lb of beef. scale accordingly for how much you make)
 
 - Beef/turkey
 - Rice
