@@ -6,7 +6,7 @@ Should make 4 servings with the portions listed below
 # Ingredients
 
 ### Main ingredients
-- ~ 800g Steak (top round what recipe called for), cut into cubes
+- ~ 800g Steak (top round what recipe called for), cut into cubes (about 1.7 lbs)
 - 1.5 tsp salt
 - 2 tsp black pepper
 - tsp garlic powder
