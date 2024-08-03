@@ -12,6 +12,7 @@
 - red pepper flakes
 - rosemary
 - chicken
+- onion
 
 ---
 ## Instructions
