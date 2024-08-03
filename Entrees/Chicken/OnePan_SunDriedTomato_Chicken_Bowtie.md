@@ -13,6 +13,7 @@
 - rosemary
 - chicken
 - onion
+- tomato paste
 
 ---
 ## Instructions
