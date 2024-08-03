@@ -14,6 +14,7 @@
 - chicken
 - onion
 - tomato paste
+- chicken broth
 
 ---
 ## Instructions
